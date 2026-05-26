@@ -168,7 +168,7 @@ Our team at bluerose packaging helps you choose the right Soft foam roll and Foa
 
 ---
 
-## Locations We Serve & Packaging Products by Industry
+## Locations We Serve & Packaging Products 
 
 ### Service Areas for Packaging Industry
 
